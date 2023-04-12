@@ -1,0 +1,4 @@
+- Hi, I’m @Caticorn0201 or Baylee.
+- I have 2 sisters.
+- I enjoy reading, watching SpongeBob, and hanging out with my sisters.
+- I started learning programming on Khan Academy in 2019, and I recently joined Codecademy.
